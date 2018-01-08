@@ -13,4 +13,10 @@ Trump is to distract us from the Russians.
 ELVIS IS ALIVE
 
 ## Secret subfile 4
-Task: Eliminate Daan. He knows too much. It has to be done soon...
+Task: Eliminate Daan. He knows too much. It has to be done soon... He is now singing weird muppet songs. Although they are quite catchy.
+
+## Secret subfile 5
+Mahna Mahna, Tututududu
+
+## Secret subfile 6
+My mind is slowly unravelling. Mahna mahna
